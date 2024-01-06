@@ -1,4 +1,4 @@
-	My names Noctis, read my rentry.
+	My names Akari, 19 !!
 
 	Minors on 18+ DNI & -15 on safe DNI.
  
